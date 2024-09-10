@@ -1,6 +1,6 @@
 Article 515-10
 ----
-L'ordonnance de protection est délivrée par le juge, saisi par la personne en
+L'ordonnance de protection est délivrée par lea juge, saisi.e par la personne en
 danger, si besoin assistée, ou, avec l'accord de celle-ci, par le ministère
 public.
 
